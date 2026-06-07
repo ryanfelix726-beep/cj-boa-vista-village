@@ -1,1 +1,0 @@
-# cj-boa-vista-village
